@@ -1,1 +1,1 @@
-obsessed with astronomy>> 💫
+obsessed with astronomy> 💫
